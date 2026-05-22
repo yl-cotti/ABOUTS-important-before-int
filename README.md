@@ -4,8 +4,11 @@ Hi!! Minor....anyways here's my dni's and int's!!
 Dni :'(
 ◈ Problematic. 
 ◈ Ignorant
-◈ Sexual jokes (if we aren't close.) 
-◈18+ !! I'm a minor,, sorry :'t
+◈ Sexist, misogynistic, homophobic, transphobic, racist, etc.
+◈ 18+ !! I'm a minor,, sorry :'t
+◈ Makes jokes about *pstein.
+◈ thinks inappropriate avatars are funny
+◈ tr*mp supporter
 
 int's! 
 ◈ dod, GoE, frsk, ch, Dw, bear alpha, Paw patrol, epic, UU/LS, click SMP basically fandoms!! 
