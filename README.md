@@ -1,4 +1,4 @@
-READ. NOW 
+READ. NOW
 Hi!! Minor....anyways here's my dni's and int's!! 
 
 Dni :'(
