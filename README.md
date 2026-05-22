@@ -14,7 +14,7 @@ int's!
 
 boundaries: !! 
 ┆ please respect these ┆
-do not make sexual jokes abt me if we don't know each other really close, please do not ship me with someone I'm not close with, do not h*mp me if we aren't. close.
+do not make sexual jokes abt me if we don't know each other really close, please do not ship me with someone who doesn't like being shipped also, do not h*mp me if I do not consent to it, please don't assume I'm dating someone. (I'm happily married to my girlfriend) 
 
 about me!! 
 polyamorous/polysexual/Interbinary/bigender/Pansexual...gulps
