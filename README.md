@@ -3,7 +3,7 @@ Hi!! Minor....anyways here's my dni's and int's!!
 
 Dni :'(
 ◈ Problematic. 
-◈ Ignorant
+◈ Makes fun of people for fun
 ◈ Sexist, misogynistic, homophobic, transphobic, racist, etc.
 ◈ 18+ !! I'm a minor,, sorry :'t
 ◈ Makes jokes about *pstein.
@@ -17,7 +17,7 @@ int's!
 
 boundaries: !! 
 ┆ please respect these ┆
-do not make sexual jokes abt me if we don't know each other really close, please do not ship me with someone who doesn't like being shipped also, do not h*mp me if I do not consent to it, please don't assume I'm dating someone. (I'm happily married to my girlfriend) 
+do not make sexual jokes abt me if we don't know each other really close, please do not ship me with someone who doesn't like being shipped also, do not h*mp me if I do not consent to it. 
 
 about me!! 
 polyamorous/polysexual/Interbinary/bigender/Pansexual...gulps
