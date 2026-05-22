@@ -1,4 +1,4 @@
-# ABOUTS-important-before-int
+README.md
 Hi!! Minor....anyways here's my dni's and int's!! 
 
 Dni :'(
