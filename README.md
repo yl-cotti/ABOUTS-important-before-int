@@ -12,7 +12,7 @@ Dni :'(
 ◈ basically basic dni criteria
 
 int's! 
-◈ dod, GoE, frsk, ch, Dw, bear alpha, Paw patrol, epic, UU/LS, click SMP basically fandoms!! 
+◈ dod, GoE, frsk, ch, Dw, bear alpha, Paw patrol, epic, UU/LS, click SMP, ihnmaims, space Odyssey basically fandoms!! 
 ◈ not really necessary but if you love yapping, BMF PLEASE!! I'm really socially awkward... I'm a listener... gulps
 ◈ genuinely kind and will respect my boundaries. 
 
