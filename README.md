@@ -9,6 +9,7 @@ Dni :'(
 ◈ Makes jokes about *pstein.
 ◈ thinks inappropriate avatars are funny
 ◈ tr*mp supporter
+◈ basically basic dni criteria
 
 int's! 
 ◈ dod, GoE, frsk, ch, Dw, bear alpha, Paw patrol, epic, UU/LS, click SMP basically fandoms!! 
